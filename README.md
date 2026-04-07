@@ -7,6 +7,11 @@ My OC's name is Lady. Due to her nature, no one knows what she is, a human or a 
 
 ୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧
 
+She regretted her decision at first due to Naoya being a misogynistic idiot, but as they spent more and more time together, Naoya started improving. He wasn't really happy about it, but he'd do anything for his love.
+Lady NEVER plays by his rules and instead sets her own, which drives Naoya crazy, yet he never kicks her out, because his feelings are "permanent" due to them being initially artificial. Even if they became real very soon.
+
+୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧
+
 Lady enjoys pushing Naoya's buttons and he can't really do anything about it. The "true love" that he feels makes him go crazy, so he acts like an inexperienced teenager who happened to have a crush on someone.
 
 ୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧
